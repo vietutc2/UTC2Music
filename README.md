@@ -24,4 +24,4 @@
 
 **Images**
 
-![Mô tả](D:\Viet_download\cvavt.png)
+![Mô tả](D:\Viet_download\1657762e79447e9.jpg)
